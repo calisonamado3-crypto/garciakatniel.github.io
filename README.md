@@ -1,1 +1,0 @@
-# garciakatniel.github.io
